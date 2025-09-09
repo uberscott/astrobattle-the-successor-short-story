@@ -1,10 +1,3 @@
-# ASTRO BATTLE
-## The Successor
-### An Astro Battle short story
+# THE SUCCESSOR -- AN ASTRO BATTLE SHORT STORY
 
-### *1st mental health edition*
-
-### by Scott Williams
-
-### [*scott@uberscott.com*](mailto:scott@uberscott.com)
-
+## by Scott Williams
