@@ -121,21 +121,30 @@ Then Rhea said without projecting: "And YOU.  Don't think I don't know you are t
 
 A puff of smoke erupted and a Whysan stood atop Maezir.  He leapt to Rheas side and gave aide as she transferred her weight from Maezir.
 
-"Tell me Khaedus, Edus is dead?", Rhea asked dwindling
+"Edus dead? You are sure of this?", Rhea asked dwindling
 
-"I saw to it myself, milady.  He meant to evade, yet I pushed him towards the crucible.  He grabbed me and attempted to pull me into the inferno with him.  Then came your final attack, and he released me laughing like the crazed man he was. I know not why. I teleported to safety the moment before he was obliterated.  I have no doubt he is gone.", Khaedus confessed.
+"I saw to it myself, milady.  I pushed him towards the crucible.  He grabbed me and attempted to pull me into the inferno with him.  Then came your final attack, he released me laughing like the crazed man he was. I know not why. I teleported to safety the moment before he was obliterated.  I have no doubt he is gone.", Khaedus confessed.
 
-"You are a must worthy Whysan, my Khaedus. And it pains me to make another great ask of you."
+"You are a most worthy Whysan, my Khaedus. It pains me to make another great ask of you."
 
-"Ask!  Please Ask!  No ask from you will ever dampen my Whysan enthusiasm to serve. Especially at this moment of need."
+"Ask!  Please Ask!  No ask from you will ever dampen my Whysan enthusiasm to serve you! Especially at this moment of need."
 
 "Very well then. Watch first:", 
 
-She consumed the last bits of her strength and balanced back to her own feet, pulled Maezir from the ground. "Maezir"  
+She consumed the last bits of her strength and balanced back to her own feet, pulled Maezir from the ground and held him in a throwing stance at a forty-five-degree angle. The spear tip dripped with clay and blood.
+
+"I release you from my summon, my Maezir.  Sleep in the earth and one day accommodate the one who will bring my successor", She flung Maezir over the horizon with the last bit of her aura.
+
+"Find where Maezir lands, Khaedus, I know you have the magic to do so.  Watch over and protect that spot. You and your heirs. Someday one in your line will serve my successor to finally resolve this universe."
+
+Khaedus bowed deeply and disappeared in a cloud of smoke.
+
+Rhea took a moment to regard her work and lament her life.  She watched as Bringlings were beginning to make planetfall like thousands of shooting stars.    
+
+"I place no conditions on you, my heir other than you follow your own heart"
+
+She turned to stone.
 
 
-“I may see you in the previous life some day, but not again in this one.”
-
-She then slammed Maezir’s head into the ground and turned to stone.  
 
 
