@@ -1,11 +1,16 @@
 # Summary
 
-- [Introduction](./introduction.md)
-- [Prologue](./0-prologue.md)
-- [Title](./title.md)
- 
+[Introduction](./introduction.md)
+
+---
+
+[Prologue](./0-prologue.md)
+[Title](./title.md)
+
+---
+
 * [The Fall of Rhea](./1-the_fall_of_rhea.md)
-* [Preparations](./2-preparations.md)
+* [Preparations](2-the_time_of_fertility.md)
 * [A Reunion of Nobles](./3-a_reunion_of_nobles.md)
 * [Pretty Little Things](./4-pretty_little_things.md)
 * [Trina in Darkness](5-trina_in_darkness.md)

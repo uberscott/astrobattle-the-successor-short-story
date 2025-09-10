@@ -6,8 +6,6 @@ She fell and fell.
 
 Despite being identical to a human, a Bringling is not such a fragile thing for they are protected by the technologies of their ancestors. Forgotten technology that still serves them.  And it is for this reason that the perils of mortal man mean nothing to a Bringling.  They can, for instance, survive in the vacuum of space.  
 
-
-
 And a Bringling would have nothing to fear if not for the same technology that can also take life.  That and the technology of the Gudites.  
 
 Rhea's wish stone hovered mere centimeters from her chest and gave a distressing glow prompting Minah to continue her petition: "...Our people... We need you, Lady Rhea!..."
@@ -127,7 +125,7 @@ A puff of smoke erupted and a Whysan stood atop Maezir.  He leapt to Rheas side 
 
 "You are a most worthy Whysan, my Khaedus. It pains me to make another great ask of you."
 
-"Ask!  Please Ask!  No ask from you will ever dampen my Whysan enthusiasm to serve you! Especially at this moment of need."
+"No ask from you will ever dampen my Whysan enthusiasm to serve you! Especially at this moment of need."
 
 "Very well then. Watch first:", 
 
@@ -135,16 +133,16 @@ She consumed the last bits of her strength and balanced back to her own feet, pu
 
 "I release you from my summon, my Maezir.  Sleep in the earth and one day accommodate the one who will bring my successor", She flung Maezir over the horizon with the last bit of her aura.
 
-"Find where Maezir lands, Khaedus, I know you have the magic to do so.  Watch over and protect that spot. You and your heirs. Someday one in your line will serve my successor to finally resolve this universe."
+"Find where Maezir lands, Khaedus, I know you have the magic to do so.  Watch over and protect that spot. You and your heirs. Someday one in your line will see the creation of my successor. Make them Bring her to the Kastron's so they may guide her in her ascension... I pray it is her choice to destroy the Gud as I could not."
 
 Khaedus bowed deeply and disappeared in a cloud of smoke.
 
 Rhea took a moment to regard her work and lament her life.  She watched as Bringlings were beginning to make planetfall like thousands of shooting stars.    
 
-"I place no conditions on you, my heir other than you follow your own heart"
+"My heir, I have given you a heart to follow without condition.  It is YOU who must choose to be my successor or leave that task for another. This universe be damned.  I give no condition because it is wrong to yolk a child with the ambitions of her parent as was done to me by my father. With your heart choose, and you will choose wisely."
 
 She turned to stone.
 
+Minah softly landed from the sky and wept at her former master's feet.
 
-
-
+The Bringling people later named their new homeworld 'Rheashan.'
