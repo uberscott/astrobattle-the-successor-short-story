@@ -1,4 +1,5 @@
-# WAR’S END
+# PROLOGUE
+## WAR’S END
 
 A wave of energy ripped through the universe causing a chain of explosions that pocked the very fabric of space.  At its origin stood the hero and its terminus a supernova; the cosmic funeral pyre of the villain.  And with that the 2nd Gudite war ended in their defeat.
 

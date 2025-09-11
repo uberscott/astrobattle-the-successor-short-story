@@ -1,4 +1,4 @@
-# PRETTY LITTLE THINGS
+## PRETTY LITTLE KINGS
 
 Shy maidens were a challenge for every humanoid culture back to the first  
 human girl. But for Bringlings this shy stretch didn't last long. For The  

@@ -1,4 +1,4 @@
-## The Fall of Rhea
+## THE FALL OF RHEA
 
 “Lady Rhea\!  Can you hear me?” 
 

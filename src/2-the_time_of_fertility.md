@@ -1,4 +1,4 @@
-## The Time of Fertility
+## THE TIME OF FERTILITY
 #### *Four thousand years after the fall of Rhea*
 
 On the planet Rheashan three moons drew close and the first Klaxon rang. It was not a mortal sound that spread its noise through vibrations in the air, but a sound made of Bringling magic that vibrated space faster than light itself.  Bringlings and their servants perceived the 'sound' and knew it summoned them for The Time of Fertility--the ritual of Bringling reproduction and the only way Bringling reproduction was possible in this the universe of resolution.

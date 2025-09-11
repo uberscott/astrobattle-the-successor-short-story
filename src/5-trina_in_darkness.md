@@ -1,4 +1,4 @@
-## Trina's New Obsession
+## TRINA IN THE DARKNESS
 
 “Trina! Trinadon!”  Deebit shouted for his new friend.
 

@@ -1,4 +1,4 @@
-###  Reunion of Nobles
+## REUNION OF NOBLES
 
 Representatives of the Kastron family greeted the Noblesse as they attended the grounds of the castle with great pomp and circumstance.
 
